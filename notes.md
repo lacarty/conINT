@@ -11,3 +11,4 @@
 "pertinent negative"- talk about what's not there (as well as what is there); You are accountable, do not reach for what you want to see. Do not use words like "obviously" and "clearly", instead "it appears to be a case of x due to y and z.." 
 http://www.artfulperception.com/index.html  @AmyHermanAOP
 5.  Osintion with Joe:  melissa.com, a property data explorer
+6.  Great music during intermission:  Monstercat
